@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AARYANNEHRA
-- 👀 I’m interested in Learning new tachnologies
+- 👀 I’m interested in Learning new tachnology
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 9027520925(whatsapp only)
